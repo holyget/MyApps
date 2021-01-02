@@ -1,1 +1,12 @@
-# MyApps
+#蓝奏云
+━━━━━━━━━━━━━━━━━━
+
+[`哔哩哔哩`](https://yoyodadada.lanzous.com/b07pspyj "悬停显示")
+
+[`idm`](https://yoyodadada.lanzous.com/b07q5ehe"悬停显示")
+
+[`MX.Player.Pro`](https://yoyodadada.lanzous.com/b07psqab "悬停显示")
+
+[`QQ音乐`](https://yoyodadada.lanzous.com/b07psr3a"悬停显示")
+
+[`speedtest`](https://yoyodadada.lanzous.com/b07psq6h"悬停显示")
