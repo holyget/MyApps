@@ -14,3 +14,7 @@
 
 
 [`软件阁`](https://lanzous.com/u/%E9%86%8B%E5%91%B3%E8%BE%B0)
+
+[`下载tool合集`](https://lanzoui.com/b05a873cb)
+
+[`KinhDown`](https://kinhdown.kinh.cc/)
