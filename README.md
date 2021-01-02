@@ -10,3 +10,7 @@
 [`QQ音乐`](https://yoyodadada.lanzous.com/b07psr3a"悬停显示")
 
 [`speedtest`](https://yoyodadada.lanzous.com/b07psq6h"悬停显示")
+━━━━━━━━━━━━━━━━━━
+
+
+[`软件阁`](https://lanzous.com/u/%E9%86%8B%E5%91%B3%E8%BE%B0)
