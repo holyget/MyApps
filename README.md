@@ -13,4 +13,4 @@
 
 [`KinhDown`](https://kinhdown.kinh.cc/)
 
-[`My Lanzou`](https://holyge.lanzous.com/u/乐分享/)
+[`My Lanzou`](http://holyge.lanzous.com/u/乐分享)
