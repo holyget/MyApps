@@ -7,8 +7,6 @@
 
 [`MXPlayerPro`](https://yoyodadada.lanzoui.com/b07psqab)
 
-[`QQ音乐`](https://yoyodadada.lanzoui.com/b07psr3a)
-
 [`下载tool合集`](https://lanzoui.com/b05a873cb)
 
 [`KinhDown`](https://kinhdown.kinh.cc/)
