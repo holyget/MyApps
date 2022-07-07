@@ -7,8 +7,6 @@
 
 [`MXPlayerPro`](https://yoyodadada.lanzoui.com/b07psqab)
 
-[`下载tool合集`](https://lanzoui.com/b05a873cb)
-
 [`KinhDown`](https://kinhdown.kinh.cc/)
 
-[`My Lanzou`](http://holyge.lanzous.com/u/乐分享)
+[`My Lanzou`](http://holyge.lanzou.com/u/乐分享)
